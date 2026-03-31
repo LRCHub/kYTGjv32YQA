@@ -1,0 +1,47 @@
+# Hotaru – 季節が巡るたびに
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+街路樹の色が変わるたびに思い出す
+君と歩いた、あの時の風の匂い
+I can almost hear your laughter carried on the
+very first chill of autumn air
+新しい季節が来るたび心は揺れて
+過去と現在を行ったり来たり
+ピアノのフレーズがそっと扉を開ける
+蘇る記憶の粒、眩しすぎて
+The memories are like vivid postcards sent from
+a life I can't return to
+季節が巡る、そのたびに
+君の残像が胸を叩く
+二人で過ごしたあの夏も
+冬の白い約束も消えない
+初めて傘を重ねた春の雨の音
+花火を見上げた夏の熱い夜空
+I keep revisiting the scenes, trying to find the
+point where everything changed
+今はもう違う道を選んだ二人だけど
+思い出だけは色褪せずに鮮やか
+忘れたいのに、忘れられない旋律
+どうしてこんなに響くのだろう
+I know that these beautiful echoes are both the
+cure and the poison for my heart
+風が巡る、そのたびに
+君の微笑み胸に響く
+ふたり描いた夢の跡も
+時の流れに溶けはしない
+思い出は時を超えて私を包み込む
+それは罰じゃなく、私を支える力
+I finally realize that I don't have to erase the
+past to embrace the future
+ありがとう、君といた全ての瞬間に
+季節が巡る、そのたびに
+君の残像が胸を叩く
+ふたり過ごしたあの夏も
+冬の白い約束も消えない
+朝が巡る、そのたびに
+君の言葉が心灯す
+ふたり見上げた空の青も
+今も静かに息づいてる
+```
